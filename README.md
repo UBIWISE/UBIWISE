@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @UBIWISE
 - 👀 I’m interested in ... basketball 
 - 🌱 I’m currently learning ... Daystar university 
-- 💞️ I’m looking to collaborate on ... school community development 
+- 💞️ I’m looking to collaborate on ... no idea
 - 📫 How to reach me ...@yvng_socialites
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...i love hiking
